@@ -9,7 +9,7 @@ This team will disolve on 31st Dec 2020.
 |Chapter Advisor 2 | Prof. A. Thomas       | 15th Feb 2020 | Present       |
 |Chapter Chair     | Mr. Vedant Bahel      | 6th Jan 2020  | Present       |
 |Vice Chair        | Mr. Atharva Peshkar   | 6th Jan 2020  | Present       |
-|Secretary         |                       | 6th Jan 2020  | Present       |
+|Secretary         | Ms. Rishita Mishra                    | 6th Jan 2020  | Present       |
 |Treasurer         | Mr Shreyas Malewar    | 6th Jan 2020  | Present       |
 |Web Master        | Mr Siddhinath Taldhi  | 6th Jan 2020  | Present       |
 |ExCom Member      | Ms. Hrutuja Kargirwar | 6th Jan 2020  | Present       |  
